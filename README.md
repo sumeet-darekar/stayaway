@@ -1,4 +1,2 @@
-# stayaway
-pretty good for beginner ^_^
-
-noob{g1thub_is_w4tch1ng}
+you might be on wrong path
+Or may be i am wrong here
